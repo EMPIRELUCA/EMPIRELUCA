@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EMPIRELUCA
+- 👀 I’m interested in Web developement and game developement :D
+- 🌱 I’m currently learning c#
+- 💞️ I’m looking to collaborate on Game developement
+- 📫 How to reach me? Dm me on discord EMPIRELUCA#9999
